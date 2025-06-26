@@ -1,1 +1,1 @@
-https://tmpfiles.org/dl/3229210/robots.txt
+https://files.catbox.moe/sv80np.txt
