@@ -1,1 +1,1 @@
-https://files.catbox.moe/sv80np.txt
+https://files.catbox.moe/yfriz3.txt
