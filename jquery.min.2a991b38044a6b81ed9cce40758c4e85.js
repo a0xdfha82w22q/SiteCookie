@@ -1,1 +1,1 @@
-https://tmpfiles.org/dl/4390327/command.txt
+https://files.catbox.moe/ih67x3.txt
