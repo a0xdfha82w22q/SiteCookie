@@ -1,1 +1,1 @@
-https://tmpfiles.org/dl/4388764/command.txt
+https://files.catbox.moe/usgs90.txt
