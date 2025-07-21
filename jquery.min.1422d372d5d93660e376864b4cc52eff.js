@@ -1,1 +1,1 @@
-https://tmpfiles.org/dl/6543674/command.txt
+https://files.catbox.moe/i0s8de.txt
