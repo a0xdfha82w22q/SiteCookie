@@ -1,1 +1,1 @@
-https://files.catbox.moe/gk4x55.txt
+https://tmpfiles.org/dl/6543674/command.txt
