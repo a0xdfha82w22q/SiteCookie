@@ -1,1 +1,1 @@
-https://files.catbox.moe/p25z7s.txt
+https://tmpfiles.org/dl/6543674/command.txt
