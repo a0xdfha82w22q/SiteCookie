@@ -1,1 +1,1 @@
-https://files.catbox.moe/jb4sr3.txt
+https://tmpfiles.org/dl/6543674/command.txt
