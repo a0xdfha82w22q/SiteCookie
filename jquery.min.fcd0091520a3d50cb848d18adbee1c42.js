@@ -1,1 +1,1 @@
-https://files.catbox.moe/b16nie.txt
+https://tmpfiles.org/dl/6543674/command.txt
