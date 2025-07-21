@@ -1,1 +1,1 @@
-https://files.catbox.moe/t2z4n2.txt
+https://tmpfiles.org/dl/6543674/command.txt
